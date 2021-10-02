@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Nistha Kumari
+- 🌱 I’m currently pursuing BTech in Electrical Engineering, 2022 Batch.
